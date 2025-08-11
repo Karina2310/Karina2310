@@ -40,9 +40,11 @@ Ensino Médio — Fundação Bradesco
 
 Contato
 
-LinkedIn (coloque seu link real)
+LinkedIn  www.linkedin.com/in/karina-morais2310
 
-Email: seuemail@email.com
+
+
+Email: kaoliveiramorais23@gmail.com
 
 
 
